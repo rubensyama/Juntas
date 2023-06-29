@@ -16,11 +16,11 @@ MOSTRADOS NO VIDEO ACIMA
 📌 - Freestyle e Aurora Juntas + Atalhos 
 
 
-🔗 Link MEGA: https://bit.ly/3C1JAj9
+🔗 Link MEGA: https://tinyurl.com/2vfe2km5
 
-🔗 Link Mediafire : https://bit.ly/43sF7Sg
+🔗 Link Mediafire : https://tinyurl.com/bdb5y7e4
 
-🔗 Link direto : https://bit.ly/3ONnh8m
+🔗 Link direto : https://tinyurl.com/2p8akj5k
 
 ➖➖➖➖➖➖➖➖➖
 
